@@ -1,1 +1,1 @@
-Vivaldi Winter 2024 - Rotaru Cristian
+Vivaldi Spring 2025 - Andrei Tura
